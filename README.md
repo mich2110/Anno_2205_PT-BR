@@ -41,6 +41,8 @@ Se você desejar testar a tradução em jogo, será preciso colar e substituir o
 
 ## Doações
 
-[![Picpay](https://i.ibb.co/cYcsCnZ/hhhh.png)](https://picpay.me/gilsongbj)
+chave pix  
 
-Obrigado!:wave:
+3d9486e6-56d6-4282-8e70-de7ee471d682
+
+Obrigado!
